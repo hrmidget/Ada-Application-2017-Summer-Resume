@@ -1,5 +1,5 @@
 **H. Rose Midget**  
-hrmidget@gmail.com([hrmidget@gmail.com)  
+hrmidget@gmail.com(hrmidget@gmail.com)  
 (801) 419-2604
 
 ###Objective: 
