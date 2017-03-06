@@ -1,7 +1,7 @@
 ###H. Rose Midget  
-#####<hrmidget@gmail.com>  
-#####(801) 419-2604  
-  
+ <hrmidget@gmail.com>  
+ (801) 419-2604
+
 ###Objective: 
 To build skills so I can break into an industry where I can use and develop both my aptitude for technical problem solving and my eye for creative design   
 
